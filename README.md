@@ -35,6 +35,6 @@
 
 ---
 
-[🍭 kAramelniy 🍭](https://t.me/kAramelniy)
+Спасибо за софт [🍭 kAramelniy 🍭](https://t.me/kAramelniy)
 
 ---
